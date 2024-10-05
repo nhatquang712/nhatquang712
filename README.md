@@ -10,4 +10,6 @@
 - https://discord.gg/ZcS4fne9
 - https://www.threads.net/@nowf_quy
 - https://notewidget.page.link/join
-  hết r ae ạ nào có cập nhật tiếp :))
+
+
+-hết r ae ạ nào có cập nhật tiếp :))
